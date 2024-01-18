@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GE0R6E
 - 👀 I’m interested in STEM
 - 🌱 I’m currently a high school freshman
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on projects and research
 - 📫 How to reach me: georgezweichel@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like film
