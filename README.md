@@ -2,7 +2,7 @@
   
   ✓ I’m interested in STEM
   
-  ▢ I’m currently a high school freshman
+  ▢ I’m currently a high school sophomore
   
   ⊚ I’m looking to collaborate on projects and research
  
